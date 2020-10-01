@@ -1,1 +1,1 @@
-# Free Code Camp Dallas Official Web Site! # 
+# Free free Code Camp Dallas Official Web Site for everyone! # 
